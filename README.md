@@ -41,5 +41,6 @@ These are projects i am the most proud of from developing them for multiple year
   
 ## ⚡ Fun fact
 - I hate Microsoft products, but i still use them
+- I like the pokèmon anime....
 
 Thanks for stopping by! Have a great day! 😊
